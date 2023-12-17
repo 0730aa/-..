@@ -1,4 +1,4 @@
-# 品酒师：Elysia Yunxiang **
+# 品酒师：Elysia Yunxiang 
 
 尊敬的茉香酒爱好者们，
 
